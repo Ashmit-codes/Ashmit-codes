@@ -2,7 +2,7 @@
 - 👀 I’m interested in Latinas 😍, just kidding 😅, interested in improving myself. Meditate everyday, Journal, Gym and do study
 - 🌱 I’m currently learning HTML, C#, C++, CSS, 
 - 💞️ I’m looking to collaborate on 
-- 📫 Reach me out me on kantiashmitg@gmail.com, insta:- @Ashmi.t , Twitter/x: - @Ashmitkanti006, Reddit: - u/Ok_Wait3163, Discord: - Ashmit
+- 📫 Reach me out me on kantiashmitg@gmail.com, insta:- @Ashmi.t , Twitter/x: - @Ashmitkanti006, Reddit: - u/Ok_Wait3163, Discord: - Ashmit, LinkedIn: - Ashmit Kanti
 - ⚡ No Job better than a Blowjob 
 
 <!---
